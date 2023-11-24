@@ -9,4 +9,4 @@ Game of Thrones is an epic fantasy series based on George R.R. Martin's "A Song 
 - **Tyrion Lannister:** Known for his wit and intellect, Tyrion provides some of the best dialogues.
 
 ## Storyline
-The show's complex storyline and unexpected twists kept viewers on the edge of their seats for eight gripping seasons. The battle scenes, political intrigue, and shocking character deaths made it an unforgettable experience.
+The show's complex storyline and unexpected twists kept viewers on the edge of their seats for eight gripping seasons. The battle scenes, political intrigue, and shocking character deaths made it an unforgettable experience
